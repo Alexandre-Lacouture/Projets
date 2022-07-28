@@ -1,4 +1,4 @@
-# Projets professionnalisants
+# Projets
 
 Comptable depuis quinze ans j’ai évolué dans diverses structures allant du cabinet à taille humaine, du groupe à dimension internationale et la banque d'investissement.
 
